@@ -1,6 +1,6 @@
 .. raw:: html
  
-    <meta http-equiv="refresh" content="0; url=https://aclogportal.com/">
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
 
 Trazer Wallet®️ USA Contact Numbers: A Comprehensive Guide
 ============================================
